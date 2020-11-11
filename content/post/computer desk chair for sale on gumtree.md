@@ -1,0 +1,109 @@
++++
+        
+author = "Our Writers"
+        
+title = "Computer Desk Chair For Sale On Gumtree"
+        
+date = 2020-11-09T15:18:43.044540
+        
++++
+[ ![](https://i.ebayimg.com/00/s/ODAwWDM4NA==/z/0dwAAOSwqK9e61CX/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDM4NA==/z/0dwAAOSwqK9e61CX/$_86.PNG) Computer / office / desk chair for sale | in Canterbury, Kent | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/2eUAAOSwWPle73X6/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/2eUAAOSwWPle73X6/$_86.JPG) Modern office chair | in Earls Court, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/2vEAAOSwrj9eJEJQ/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/2vEAAOSwrj9eJEJQ/$_86.PNG) COMPUTER CHAIR OR OFFICE CHAIR FOR SALE | in Swansea | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/tKEAAOSw8Xpe5KgS/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/tKEAAOSw8Xpe5KgS/$_86.PNG) COMPUTER CHAIR OR OFFICE CHAIR FOR SALE | in Swansea | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg2ODY=/z/4-MAAOSwcylfedrQ/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg2ODY=/z/4-MAAOSwcylfedrQ/$_86.JPG) Office Chair Black Leather Computer desk chair | in Greenford, London |  Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/4i8AAOSwgXZfcaMf/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/4i8AAOSwgXZfcaMf/$_86.PNG) Computer desk office chair black gas lift £15 o.n.o | in Birmingham, West  Midlands | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/5rEAAOSwmNtfhLmO/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/5rEAAOSwmNtfhLmO/$_86.JPG) Computer desk chair. | in Bournemouth, Dorset | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/LIYAAOSwcUJfRivg/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/LIYAAOSwcUJfRivg/$_86.JPG) Desk Chair for Sale | in Shepherds Bush, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/kX0AAOSwrANct37S/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/kX0AAOSwrANct37S/$_86.JPG) IKEA Computer desk chair | in Colliers Wood, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg1NzY=/z/RQEAAOSwFcdfWid9/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg1NzY=/z/RQEAAOSwFcdfWid9/$_86.JPG) Computer desk and office chair - £10 for the pair. Priced for quick sale.  Collection only. | in Sheffield, South Yorkshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/X18AAOSwUAVfJmtV/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/X18AAOSwUAVfJmtV/$_86.JPG) Computer Desk & Chair | in Chaddesden, Derbyshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NDgwWDY0MA==/z/cTUAAOSwiLZeQrnx/$_86.JPG)](https://i.ebayimg.com/00/s/NDgwWDY0MA==/z/cTUAAOSwiLZeQrnx/$_86.JPG) Computer Desk, Chair and Drawer unit for sale | in The Shore, Edinburgh |  Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/6gkAAOSw9bZfMn66/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/6gkAAOSw9bZfMn66/$_86.PNG) Computer desk and swivel chair | in Leicester, Leicestershire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/v9YAAOSwbFFe8RA5/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/v9YAAOSwbFFe8RA5/$_86.JPG) Ikea desk and chair for sale | in West Bridgford, Nottinghamshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDM4Mg==/z/hsYAAOSwjOVe4j~L/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDM4Mg==/z/hsYAAOSwjOVe4j~L/$_86.PNG) Table and office chair for sale (collection only) North Wembley | in  Wembley, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/-yQAAOSw6GNfNYLp/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/-yQAAOSw6GNfNYLp/$_86.JPG) IKEA DESK AND CHAIR FOR SALE | in Holywood, County Down | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/n7gAAOSw6HdfmeBQ/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/n7gAAOSw6HdfmeBQ/$_86.JPG) Computer desk and chair for sale | in Newport | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/vWwAAOSwDEBb6vtI/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/vWwAAOSwDEBb6vtI/$_86.JPG) SOLD SOLD SOLD - RED COMPUTER DESK CHAIR | in Purley, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NjAwWDgwMA==/z/4RYAAOSwbv9dynzC/$_86.PNG)](https://i.ebayimg.com/00/s/NjAwWDgwMA==/z/4RYAAOSwbv9dynzC/$_86.PNG) Computer Desk and Chair | in Mapperley Park, Nottinghamshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/nqYAAOSwHAFfIpYD/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/nqYAAOSwHAFfIpYD/$_86.JPG) Ikea Desk & Chair | in Maidstone, Kent | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/d2UAAOSw7qlfgXhr/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/d2UAAOSw7qlfgXhr/$_86.JPG) Nearly new Office / Computer Chair for Sale | in Swansea | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/WeUAAOSwzLZfkdhW/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/WeUAAOSwzLZfkdhW/$_86.JPG) Green Stylish Computer Desk Chair to Sale | in London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NjAwWDgwMA==/z/0psAAOSwMIVeNEGN/$_86.PNG)](https://i.ebayimg.com/00/s/NjAwWDgwMA==/z/0psAAOSwMIVeNEGN/$_86.PNG) SOLD white Desk and Chair | in Glasgow | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/Y9oAAOSwFp5eWj0~/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/Y9oAAOSwFp5eWj0~/$_86.PNG) Quality computer desk and chair sale ! | in Wigan, Manchester | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NTc2WDEwMjQ=/z/KhIAAOSwoMhfO62l/$_86.JPG)](https://i.ebayimg.com/00/s/NTc2WDEwMjQ=/z/KhIAAOSwoMhfO62l/$_86.JPG) Desk and swivel chair | in Stanmore, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/YnwAAOSw7R9df6jQ/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/YnwAAOSw7R9df6jQ/$_86.JPG) Desk and chair for sale £25 | in Clifton, Bristol | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/EMYAAOSwla9feHg6/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/EMYAAOSwla9feHg6/$_86.JPG) Office furniture for sale | in Newtownabbey, County Antrim | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/wpcAAOSwNHxfoYTL/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/wpcAAOSwNHxfoYTL/$_86.JPG) Office Chair and computer desk | in Whetstone, Leicestershire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/Va4AAOSw92RbEQuW/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/Va4AAOSw92RbEQuW/$_86.JPG) COMPUTER / OFFICE CHAIR FOR SALE | in Castleford, West Yorkshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/~fMAAOSwHJZfbKUK/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/~fMAAOSwHJZfbKUK/$_86.JPG) Office Table and 4 chairs used | in Dewsbury, West Yorkshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYyMg==/z/XTYAAOSwUJNfVo0Q/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDYyMg==/z/XTYAAOSwUJNfVo0Q/$_86.PNG) *Desk and Chair for Sale* | in Clapham, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NjAwWDgwMA==/z/SvQAAOSwzwxdvwgZ/$_86.PNG)](https://i.ebayimg.com/00/s/NjAwWDgwMA==/z/SvQAAOSwzwxdvwgZ/$_86.PNG) Computer desk and chair | in Hall Green, West Midlands | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFgxMDE1/z/FsUAAOSwmaBe7Mf0/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFgxMDE1/z/FsUAAOSwmaBe7Mf0/$_86.JPG) Office Computer Gaming Desk Chair | in Thornliebank, Glasgow | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/LdkAAOSwnDJe64MI/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/LdkAAOSwnDJe64MI/$_86.JPG) Used Office Computer One Desk Chairs | in Southside, Glasgow | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NTc2WDEwMjQ=/z/7jMAAOSwrhBfYLx4/$_86.JPG)](https://i.ebayimg.com/00/s/NTc2WDEwMjQ=/z/7jMAAOSwrhBfYLx4/$_86.JPG) Computer / Office Desks, Table & Chairs for sale | in Eastleigh, Hampshire  | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/OuwAAOSwIjxfSo91/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/OuwAAOSwIjxfSo91/$_86.JPG) COMPUTER DESK AND CHAIR | in Paisley, Renfrewshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/bJkAAOSw6d9fHHFu/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/bJkAAOSw6d9fHHFu/$_86.JPG) Office Desk and Chair | in Maidstone, Kent | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/0eUAAOSw3~dfo~-i/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/0eUAAOSw3~dfo~-i/$_86.JPG) Computer Desk Chair | in Tring, Hertfordshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/D2gAAOSw0j5eIOXp/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/D2gAAOSw0j5eIOXp/$_86.JPG) Office Desk and Chair | in Sale, Manchester | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAwMFgxMDAw/z/7OkAAOSwc3RajxM2/$_86.JPG)](https://i.ebayimg.com/00/s/MTAwMFgxMDAw/z/7OkAAOSwc3RajxM2/$_86.JPG) SALE! Ribbed High-Back Executive Desk Chair PC Computer Office Chair | in  Rugby, Warwickshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/SSIAAOSwuSxebddH/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/SSIAAOSwuSxebddH/$_86.PNG) COMPUTER CHAIR OR OFFICE CHAIR | in Swansea | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/2V4AAOSwxW9eU8tp/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/2V4AAOSwxW9eU8tp/$_86.JPG) Desk & Swivel Chair for Sale Hackney/Dalston | in Hackney, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/CbQAAOSwrpReLL1m/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/CbQAAOSwrpReLL1m/$_86.JPG) Comfortable computer chair for sale | in North West London, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/0TsAAOSwFdReyWsp/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/0TsAAOSwFdReyWsp/$_86.JPG) Desk and Chair for sale | in Buckley, Flintshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ODEAAOSwp2Vffv~z/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ODEAAOSwp2Vffv~z/$_86.JPG) Computer desk and chair | in Uddingston, Glasgow | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/bT8AAOSw6fle8GVR/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/bT8AAOSw6fle8GVR/$_86.JPG) Medium Size Desk with Shelves and Drawers and Desk Chair | in Manor Park,  London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/oF8AAOSwLpRdZC~K/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/oF8AAOSwLpRdZC~K/$_86.JPG) Desk and Office Chair for Sale | in Hammersmith, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/H9IAAOSwkQdc76JL/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/H9IAAOSwkQdc76JL/$_86.JPG) URGENT SALE NEEDED - X2 Blue Office Computer Desk Chairs on Wheels - Used  Condition | in Coventry, West Midlands | Gumtree
+[ ![](https://i.ebayimg.com/images/g/yh8AAOSwzVtflSQv/s-l400.webp)](https://i.ebayimg.com/images/g/yh8AAOSwzVtflSQv/s-l400.webp) computer chair | Gumtree Australia Free Local Classifieds
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/~6EAAOSwRl1eJZjC/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/~6EAAOSwRl1eJZjC/$_86.JPG) Large Office Desk - With Chair | in Ely, Cambridgeshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/teAAAOSwidZfluRv/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/teAAAOSwidZfluRv/$_86.PNG) OFFICE DESK OFFICE SWIVAL CHAIR | in Wood Green, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NTc2WDEwMjQ=/z/AR8AAOSwDZ9bqz7F/$_86.JPG)](https://i.ebayimg.com/00/s/NTc2WDEwMjQ=/z/AR8AAOSwDZ9bqz7F/$_86.JPG) Top quality Beech office Desk, Leather office Chair, and storage cabinet  with sliding door | in Erskine, Renfrewshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/nVgAAOSwT4JfVgeV/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/nVgAAOSwT4JfVgeV/$_86.JPG) Desks - Office Furniture for sale | in Dorchester, Dorset | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NTc2WDEwMjQ=/z/QqEAAOSwCe1fnCbl/$_58.JPG)](https://i.ebayimg.com/00/s/NTc2WDEwMjQ=/z/QqEAAOSwCe1fnCbl/$_58.JPG) Desk and chair for sale | in Tullibody, Clackmannanshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/uv4AAOSwOCdfPYH4/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/uv4AAOSwOCdfPYH4/$_86.JPG) Desk and office chair | in Cambridge, Cambridgeshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/KHQAAOSwOb9eGITG/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/KHQAAOSwOb9eGITG/$_86.JPG) Office desk + 2 swivel chairs urgently for sale | in Dowanhill, Glasgow |  Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ersAAOSw0ite~w8x/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ersAAOSw0ite~w8x/$_86.JPG) Aurora Computer/Office chair BREND NEW&Assembked | in Reading, Berkshire |  Gumtree
+[ ![](https://i.ebayimg.com/00/s/NjAwWDgwMA==/z/ZLkAAOSwSaNfTwkm/$_86.PNG)](https://i.ebayimg.com/00/s/NjAwWDgwMA==/z/ZLkAAOSwSaNfTwkm/$_86.PNG) Office desk for sale | in Portsmouth, Hampshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/otcAAOSwxcteOErh/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/otcAAOSwxcteOErh/$_86.JPG) IKEA Markus Office Chair - RRP £150 | in Camden, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/PEEAAOSwAH1e9NH4/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/PEEAAOSwAH1e9NH4/$_86.JPG) Computer desk & chair | in Bexleyheath, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/OyoAAOSwgbpfcjY~/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/OyoAAOSwgbpfcjY~/$_86.JPG) Herman Miller Aeron Size B Office Home Computer Ergonomic Desk Chair | in  Bromley, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/3rgAAOSw0o9e9x5O/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/3rgAAOSw0o9e9x5O/$_86.JPG) Desk for sale | in Leytonstone, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/rBwAAOSwkvdaaHGD/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/rBwAAOSwkvdaaHGD/$_86.JPG) desk, chair and drawer set x 60 | in Sudbury, Suffolk | Gumtree
+[ ![](https://i.ebayimg.com/images/g/UNEAAOSwfDRfqMUr/s-l800.jpg)](https://i.ebayimg.com/images/g/UNEAAOSwfDRfqMUr/s-l800.jpg) Office/study desk and chair for sale | Pietermaritzburg | Gumtree  Classifieds South Africa | 835266486
+[ ![](https://i.ebayimg.com/images/g/JEAAAOSwC6NfgpdF/s-l400.webp)](https://i.ebayimg.com/images/g/JEAAAOSwC6NfgpdF/s-l400.webp) Desk Chair Computer Desk Chair | Office Chairs | Gumtree Australia Cardinia  Area - Beaconsfield | 1258849728
+[ ![](https://i.ebayimg.com/images/g/3zUAAOSw8gddynZ0/s-l800.jpg)](https://i.ebayimg.com/images/g/3zUAAOSw8gddynZ0/s-l800.jpg) WE BUY AND SELL NEW & USED OFFICE FURNITURE | Century City | Gumtree  Classifieds South Africa | 199937036
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/HzUAAOSwhnZfls68/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/HzUAAOSwhnZfls68/$_86.JPG) Desk / Office / Computer Chair for sale | in Canterbury, Kent | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/u3gAAOSwd9heUXrv/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/u3gAAOSwd9heUXrv/$_86.JPG) Computer Desk work station | in Plymouth, Devon | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NjQwWDQ4MA==/z/A9cAAOSw0otfSRo8/$_86.JPG)](https://i.ebayimg.com/00/s/NjQwWDQ4MA==/z/A9cAAOSw0otfSRo8/$_86.JPG) Office furniture and phones for sale | in Westminster, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/DaIAAOSwAiVfoYii/$_58.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/DaIAAOSwAiVfoYii/$_58.JPG) office Desk and Chair for sale | in Tunbridge Wells, Kent | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/rbAAAOSwQHVfpPjA/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/rbAAAOSwQHVfpPjA/$_86.JPG) Computer desk and chair | in Edinburgh | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/3XIAAOSwZrhaYzcd/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/3XIAAOSwZrhaYzcd/$_86.JPG) Computer/Office chair for sale (used but good condition) | in Hamilton,  South Lanarkshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/IVMAAOSwaNVe-4W~/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/IVMAAOSwaNVe-4W~/$_86.JPG) Computer desk | in Keighley, West Yorkshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/SKwAAOSw5WVfp-ET/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/SKwAAOSw5WVfp-ET/$_86.JPG) **ON HOLD** Desk and chair for sale **ON HOLD** | in Edinburgh City Centre,  Edinburgh | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/YFQAAOSwFWVdm2Nr/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/YFQAAOSwFWVdm2Nr/$_86.JPG) Desk and chair for sale | in New Cross, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/gD0AAOSwZq5bqj1M/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/gD0AAOSwZq5bqj1M/$_86.JPG) OPULA EXECUTIVE LEATHER OFFICE CHAIR | in Dewsbury, West Yorkshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/2aIAAOSwhARfFcXk/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/2aIAAOSwhARfFcXk/$_86.JPG) Office / Computer desk 3 piece | in Oadby, Leicestershire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/Th0AAOSwhadfnBy6/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/Th0AAOSwhadfnBy6/$_86.JPG) Work from home desk and chair | in Battersea, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/j40AAOSwD4Je6lJX/$_58.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/j40AAOSwD4Je6lJX/$_58.JPG) computer/office chair | in South East London, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NjAwWDgwMA==/z/tGcAAOSwhodfkvJG/$_86.PNG)](https://i.ebayimg.com/00/s/NjAwWDgwMA==/z/tGcAAOSwhodfkvJG/$_86.PNG) Desk and chair | in Warrenpoint, County Down | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/ba0AAOSwpW1etlnq/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/ba0AAOSwpW1etlnq/$_86.JPG) computer desk & chair bargain £25 can deliver local | in Barry, Vale of  Glamorgan | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/e4cAAOSwMi5eNS5q/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/e4cAAOSwMi5eNS5q/$_86.JPG) Office / Study / Computer desk for sale | in Pembury, Kent | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/VnMAAOSwqUtepYDW/$_58.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/VnMAAOSwqUtepYDW/$_58.JPG) Kids Computer Desk And Chair | in Forfar, Angus | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/3ecAAOSw3VpfmE-e/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/3ecAAOSw3VpfmE-e/$_86.JPG) Computer Desk & Chair | in Cheltenham, Gloucestershire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/vbMAAOSwb4VbpmVX/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/vbMAAOSwb4VbpmVX/$_86.JPG) Computer chair for sale | in Swansea | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/D94AAOSwP71eWkju/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/D94AAOSwP71eWkju/$_86.JPG) Computer desk and chair | in Forfar, Angus | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/zssAAOSw0Yxe-Djv/$_58.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/zssAAOSw0Yxe-Djv/$_58.JPG) Desk and chair set for sale | in Pulborough, West Sussex | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/C-UAAOSwhqBdGPt8/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/C-UAAOSwhqBdGPt8/$_86.JPG) Computer desk chair | in Colinton, Edinburgh | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NDk4WDEwMjQ=/z/FOMAAOSwPktflq1C/$_86.JPG)](https://i.ebayimg.com/00/s/NDk4WDEwMjQ=/z/FOMAAOSwPktflq1C/$_86.JPG) IKEA Bekant Desk & Millberget Desk Chair | in London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/FXcAAOSwm45fMrOm/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/FXcAAOSwm45fMrOm/$_86.JPG) Adjustable Computer/Office Chair With Footrest Rail | in Bangor, County  Down | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NjAwWDgwMA==/z/K6EAAOSwI1Jc4Wq1/$_86.PNG)](https://i.ebayimg.com/00/s/NjAwWDgwMA==/z/K6EAAOSwI1Jc4Wq1/$_86.PNG) Office desk, chair and filing cabinet | in Bangor, County Down | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/UN8AAOSwXUNctwOP/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/UN8AAOSwXUNctwOP/$_86.JPG) Vintage Wood Desk / chair for sale separately | in Filton, Bristol | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/G0QAAOSw0lVdf7Cn/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/G0QAAOSw0lVdf7Cn/$_86.JPG) Computer Desk + Chair + Lamp | in Nottingham, Nottinghamshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/8Q0AAOSw29Ve3SPl/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/8Q0AAOSw29Ve3SPl/$_86.JPG) Corner Desk Wood - Good condition | in Wroughton, Wiltshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDQ1MA==/z/sHkAAOSwtbBeurK7/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDQ1MA==/z/sHkAAOSwtbBeurK7/$_86.PNG) Office Furniture AVAILABLE by 1st June (DESK+CHAIR+LAMP | in Hoxton, London  | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/8MgAAOSwArNfbdQy/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/8MgAAOSwArNfbdQy/$_86.PNG) Computer gaming/office chair for sale | in Wimborne, Dorset | Gumtree
+[ ![](https://i.pinimg.com/originals/6b/41/51/6b4151a1bae64f7167c485470addef69.jpg)](https://i.pinimg.com/originals/6b/41/51/6b4151a1bae64f7167c485470addef69.jpg) Computer desk and chair | Desks | Gumtree Australia Belconnen Area -  Belconnen | 1105059850 | Leather chairs for sale, Computer desk, Room design
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/qJAAAOSwmflfV6WK/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/qJAAAOSwmflfV6WK/$_86.JPG) Office furniture for sale - desks/ chairs / drawers and more! | in Fulham,  London | Gumtree
+[ ![](https://i.pinimg.com/originals/c6/46/d6/c646d6b20cdb921d86d6c65ce7a475ca.jpg)](https://i.pinimg.com/originals/c6/46/d6/c646d6b20cdb921d86d6c65ce7a475ca.jpg) Used stuff for sale in United Kingdom | Gumtree | Chair, Beach chair  umbrella, Office chair without wheels
+[ ![](https://i.ebayimg.com/00/s/OTEyWDY4NA==/z/H0AAAOSw2PVflqJi/$_86.JPG)](https://i.ebayimg.com/00/s/OTEyWDY4NA==/z/H0AAAOSw2PVflqJi/$_86.JPG) Kids Computer Desk Swivel Chair | in Norwich, Norfolk | Gumtree
